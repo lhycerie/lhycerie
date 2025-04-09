@@ -9,7 +9,8 @@ An IT student from the [Polytechnic University of the Philippines](https://en.m.
 👩🏻‍💻 One who imagines and creates. 
 
 
-<h4>Contact</h4>
+<h2>🔗 Contact</h2>
 
-[Linkedin](https://www.linkedin.com/in/china-de-oro)
+
+•[Linkedin](https://www.linkedin.com/in/china-de-oro)
 
