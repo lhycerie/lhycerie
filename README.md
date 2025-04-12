@@ -8,10 +8,3 @@ An IT student from the [Polytechnic University of the Philippines](https://en.m.
 🧬 Has an interest in both science and technology!
 
 👩🏻‍💻 One who imagines and creates. 
-
-<h1>🖇️</h1>
-
-🌐 [Website](https://lhycerie.is-a.dev)
-
-📞 [Discord](https://discord.com/users/lhycerie)
-
