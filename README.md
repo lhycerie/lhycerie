@@ -13,5 +13,5 @@ An IT student from the [Polytechnic University of the Philippines](https://en.m.
 
 🌐 [Website](https://lhycerie.is-a.dev)
 
-📞 [Discord](https://discord.gg/users/lhycerie)
+📞 [Discord](https://discord.com/users/lhycerie)
 
