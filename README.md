@@ -9,3 +9,8 @@ An IT student from the [Polytechnic University of the Philippines](https://en.m.
 
 👩🏻‍💻 One who imagines and creates. 
 
+<h1>🖇️</h1>
+
+[Website](https://lhycerie.is-a.dev)
+[Discord](https://discord.gg/users/lhycerie)
+
